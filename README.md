@@ -1,1 +1,0 @@
-# veterinerlik_demo
